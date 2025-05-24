@@ -1,0 +1,3 @@
+- Wer diesen schritten nicht befolgt macht automatisch nicht mit 
+- Teilt dieses Tunnier 
+- Danke an alle die mich Supporten 
